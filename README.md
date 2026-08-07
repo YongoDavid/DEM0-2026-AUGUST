@@ -12,4 +12,4 @@ Make today better than yesterday.
 06 AUG 2026
 Make today better than yesterday.
 
-08 AUG 2026
+07 AUG 2026
